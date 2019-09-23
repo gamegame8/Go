@@ -1,1 +1,1 @@
-# game.gamegame.cf
+# http://game.gamegame.cf/
